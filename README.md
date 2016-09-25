@@ -1,1 +1,1 @@
-# Useful Resources for Technologists
+# Useful Resources for Technologists & Startups
